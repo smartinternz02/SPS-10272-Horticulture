@@ -2,4 +2,4 @@
 Horticulture
 
 Project demonstration video link
-https://drive.google.com/file/d/1w0W0NcbapfIbID5MJSfTlXFtUeJmbOPi/view?usp=sharing
+https://drive.google.com/file/d/1XcLOX4Mj-fg9kz2_2sbwWrKCybk-PrMm/view?usp=sharing
